@@ -17,3 +17,6 @@ I failed the first quarter of a class in middle school, so I made a fake report 
 C'était les pensées du petit garçon, il n'était pas prêt à rencontrer un ***canard*** accro aux **champignons magiques**. Mais le petit garçon aurait bien besoin de **champignons magiques** pour penser à autre chose que ses problèmes. Il commença donc à les chercher avec son nouveau ***canard de compagnie***.
 
 C'est alors qu'il se rendit dans le pays du fromage , le Pays-Bas, là-bas il trouva toutes sortes de champignon de tout type de couleur et de taille même ***Mr.Miyamoto*** n'avait jamais autant de champignon durant sa vie. Durant son voyage il rencontra un jeune plombier commençant dans le métier avec son frère , ces frères étaient de grands consommateur de champignons locaux , ils leurs arrivaient même de leurs parler.
+
+
+Amandine - tout est ok
